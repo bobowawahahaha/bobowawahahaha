@@ -20,6 +20,6 @@ if someone is in my dni list that I'm following then tell me .
 
 Evade,Die of Death,Dandy's World,Wings of Fire,Let Him Go,
 
-DeivyDoesTurtorials33,Bad Things,Warrior Cats .
+DeivyDoesTurtorials33,Bad Things,Warrior Cats,Forsaken .
 
 WIP
