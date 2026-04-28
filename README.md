@@ -1,16 +1,24 @@
-## Hi there 👋
+~ Bobo/Shedletsky fictionkin ~
 
-<!--
-**bobowawahahaha/bobowawahahaha** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+🐬 🐔
 
-Here are some ideas to get you started:
+c+h enc ! ^_^
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+,
+
+I follow people I think are cool or want to be freinds with OR are freinds
+
+if someone is in my dni list that I'm following then tell me .
+
+,
+
+• DNI: Proshippers , MAP , problematic people , below 14 or over 25.
+,
+
+~ interests ~
+
+Evade,Die of Death,Dandy's World,Wings of Fire,Let Him Go,
+
+DeivyDoesTurtorials33,Bad Things,Warrior Cats .
+
+WIP
