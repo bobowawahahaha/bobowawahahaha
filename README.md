@@ -7,9 +7,9 @@ pls int im very nice ok? :3
 ,
 
 
-~ Bobo/Shedletsky fictionkin ~
+~ Bobo/Shedletsky/Contractee fictionkin ~
 
-🐬 🐔
+🐬 🐔 
 
 
 • DNI: Proshippers , MAP , problematic people , below 14 or over 25.
