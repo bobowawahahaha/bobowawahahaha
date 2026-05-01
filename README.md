@@ -4,7 +4,7 @@ pls int im very nice ok? :3
 ,
 
 
-~ Bobo/Shedletsky fictionkin ~
+~ Bobo/Shedletsky/Contractee fictionkin ~
 
 🐬 🐔 
 
