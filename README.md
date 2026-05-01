@@ -4,7 +4,7 @@ pls int im very nice ok? :3
 ,
 
 
-~ Bobo/Shedletsky/Contractee fictionkin ~
+~ Bobo/Shedletsky fictionkin ~
 
 🐬 🐔 
 
@@ -19,8 +19,6 @@ I follow people I think are cool or want to be freinds with OR are freinds with
 
 if someone is in my dni list that I'm following then tell me .
 
-
-,
 
 ...
 
